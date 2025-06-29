@@ -1,2 +1,0 @@
-# retro-jogos
-MEUS JOGUIM, PARA AJUDAR OS PARÇA.
